@@ -1,5 +1,7 @@
-Hey Im Bruna 
+ ## Hey! Bruna here S2
 
-Begginer on IT
-Studing the basics of internet world 
-Hope you can help me 
+
+
+- Beginner on IT
+- Studying hltp
+ 
